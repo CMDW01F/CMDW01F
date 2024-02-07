@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+I actually have no fucking Idea what Im doing, but Im kinda learning how Stuff works over Time. Long way to go, but I think its a good starting point.
 <!--
 **CMDW01F/CMDW01F** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
